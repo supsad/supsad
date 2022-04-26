@@ -5,7 +5,7 @@
 - 📫 How to reach me:
 -
             · Discord ·             · Telegram ·             · VK ·               · INST ·              · MAIL ·
-        𝔎𝔦𝔩𝔩 𝔪𝔢, 𝔱𝔬𝔲𝔠𝔥𝔪𝔢#7568        @supsad4D524E        vk.com/rezyicon        @dxnt_txuchme        supsad@yahoo.com
+            supsad#7568            @supsad4D524E         vk.com/rezyicon        @dxnt_txuchme       supsad@yahoo.com
       
 
 <!---
